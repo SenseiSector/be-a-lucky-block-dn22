@@ -1,4 +1,4 @@
-
+be a lucky block smart Script is the best be a lucky block Script, featuring auto-collect and silent aim. Safe and powerful for all your needs.
 
 
 
